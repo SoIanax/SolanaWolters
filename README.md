@@ -1,5 +1,5 @@
 - 👋 Yoo, I’m @SolanaWolters
-- 👀 I like sleeping and doing absolutely nothing :
+- 👀 I like sleeping and doing absolutely nothing
 - 🌱 I’m currently learning coding and law
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me: don't <3
