@@ -1,4 +1,4 @@
-- 👋 Yoo, I’m @SolanaWolters
+- 👋 Yoo, I’m @Solana
 - 👀 I am intrested in playing games like valorant, cod, cs:go and others.
 - 🌱 Currently, i'm trying to learn some basic coding for college :)
 - 💞️ I’m looking to collaborate on many diffrent things, like my own website for a portfolio.
